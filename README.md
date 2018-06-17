@@ -1,1 +1,1 @@
-newsfirst.ua
+WebSite newsfirstit.royal-webhost.tk
